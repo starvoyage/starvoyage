@@ -13,12 +13,12 @@
 <img width="80" alt="image" src="https://static.wikia.nocookie.net/cc143070-32f1-4599-b945-dfdcae6f68ad/scale-to-width/755" />
 <img width="80" alt="image" src="https://64.media.tumblr.com/ef9a7676dc7339533c7585edf5a5dd7c/0626b2df96bab0a8-66/s1280x1920/92f22dc1fea06c6ab90261f23c5ac38adbdc7af9.pnj" />
    <p align="center">
-  ${\textsf{\color{#81b49f} ᴋᴇɴᴏᴘsɪᴀ
+  ${\textsf{\color{#81b49f} ᴋᴇɴᴏᴘsɪᴀ/ʙᴇᴠᴇʀʟʏ
   }}$<p align="center">
   ${\textsf{\color{#abcd98} sʜᴇ/ʜᴇʀ + ʜᴇ/ʜɪᴍ
   }}$
      <p align="center">
-  ${\textsf{\color{#d5e691} . . .💫🐬 . . .
+  ${\textsf{\color{#d5e691} ɪ ʟɪᴋᴇ ᴏʟᴅ ɴɪᴄᴋᴛᴏᴏɴᴅ ᴀɴᴅ ᴋɪʀʙʏ
   }}$
      <p align="center">
   ${\textsf{\color{#ffff8a} ᴡ2ɪ + ɪᴡᴄ!
