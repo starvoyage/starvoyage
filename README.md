@@ -18,7 +18,7 @@
   ${\textsf{\color{#abcd98} sʜᴇ/ʜᴇʀ + ʜᴇ/ʜɪᴍ
   }}$
      <p align="center">
-  ${\textsf{\color{#d5e691} ɪ ʟɪᴋᴇ ᴏʟᴅ ɴɪᴄᴋᴛᴏᴏɴᴅ ᴀɴᴅ ᴋɪʀʙʏ
+  ${\textsf{\color{#d5e691} ɪ ʟɪᴋᴇ ᴏʟᴅ ɴɪᴄᴋᴛᴏᴏɴs ᴀɴᴅ ᴋɪʀʙʏ
   }}$
      <p align="center">
   ${\textsf{\color{#ffff8a} ᴡ2ɪ + ɪᴡᴄ!
